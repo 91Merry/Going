@@ -1,6 +1,5 @@
-## 91Merry 最新版本下载  Download 
-91Merry官方版本下载  翻墙 科学上网 外网 加速器 梯子 路由
+## 91Merry 官网
 
-[Windows 7及以上系统](https://app.91merry.xyz/download/91Merry.rar) 
+91Merry官网
 
-[安卓版](https://app.91merry.xyz/download/91Merry.apk) 
+http://www.goukala.com/links/E55E913C07348B72
