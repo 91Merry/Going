@@ -2,4 +2,4 @@
 
 91Merry官网
 
-http://www.goukala.com/links/E55E913C07348B72
+https://going.91merry.xyz
