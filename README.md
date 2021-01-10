@@ -1,5 +1,5 @@
-## 91Merry 官网
+## 91Merry 官网发布页
 
-91Merry官网
+关注不迷路，请收藏到一个安全的地方
 
 https://going.91merry.xyz
