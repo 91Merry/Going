@@ -8,9 +8,6 @@ https://91merry.com
 
 https://sub.91merry.com/
 
-https://sub.91merry.xyz/
-
-https://sub01.91merry.xyz/
-
+https://91merry.xyz
 
 https://going.91merry.xyz
