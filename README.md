@@ -23,4 +23,4 @@ https://invite.915merry.cc （被墙，需翻墙）
 
 https://91merry.xyz （被墙，需翻墙）
 
-https://going.91merry.xyz（被墙，需翻墙）
+https://going.91merry.xyz （被墙，需翻墙）
