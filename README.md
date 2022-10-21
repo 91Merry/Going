@@ -2,14 +2,25 @@
 
 关注不迷路，请收藏到一个安全的地方
 
+
 https://915merry.top
 
 https://91merry.cc
 
-https://91merry.com
+https://invite.91merry.one
 
-https://sub.91merry.com/
 
-https://91merry.xyz
 
-https://going.91merry.xyz
+https://91merry.com （发布页）
+
+https://thesixshadow.com （发布页）
+
+
+
+https://invite.91merry.cc （被墙，需翻墙）
+
+https://invite.915merry.cc （被墙，需翻墙）
+
+https://91merry.xyz （被墙，需翻墙）
+
+https://going.91merry.xyz（被墙，需翻墙）
