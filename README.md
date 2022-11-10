@@ -22,7 +22,7 @@ https://thesixshadow.com （发布页）
 
 https://invite.91merry.cc （被墙，需翻墙）
 
-https://invite.915merry.cc （被墙，需翻墙）
+https://invite.915merry.top （被墙，需翻墙）
 
 https://91merry.xyz （被墙，需翻墙）
 
