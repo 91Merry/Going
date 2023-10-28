@@ -2,7 +2,9 @@
 
 关注不迷路，请收藏到一个安全的地方
 
-https://go.91merry-1.top
+https://going.91merry.life  
+
+https://new.91merry.life  新平台
 
 
 https://91merry.com （发布页）
