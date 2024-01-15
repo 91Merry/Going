@@ -6,6 +6,6 @@ https://91merry.com （官网）
 
 https://thesixshadow.com （发布页）
 
-http://103.118.40.40:8801/  （ 网址发布页）
+http://103.118.40.40:8001/  （ 网址发布页）
 
 
