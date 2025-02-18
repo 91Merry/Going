@@ -3,15 +3,13 @@
 
 网址发布页：
 
-https://id01.thesixshadow.com/
-
-https://id01.91merry.xyz/
-
 https://thesixshadow.com
+
+https://124.222.115.140:58888/
 
 永久官网：
 
-https://91merry.com    
+https://91merry.com
 
 邮箱：eh6162387@gmail.com
 
